@@ -1,4 +1,4 @@
-# BUMP OF CHICKEN – コロニー
+# BUMP OF CHICKEN – 邂逅
 
 > **歌詞登録ステータス：同期歌詞あり**
 
